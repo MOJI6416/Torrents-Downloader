@@ -8,4 +8,4 @@
   4. Можно легко загрузить на свой мобильный телефон.
 
 ### Инструкция:
-  https://telegra.ph/Torrents-Downloader-To-Google-Drive-03-22
+  https://lolz.guru/threads/2383281
